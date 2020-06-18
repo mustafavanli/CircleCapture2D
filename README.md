@@ -3,4 +3,4 @@ Hyper Casual tipinde yaptığım bir oyun #Muhammed Mustafa Vanlı (18.06.2020) 
 
 # Youtube Linki
 
-ttps://youtu.be/bsAW3UU6DTo
+Https://youtu.be/bsAW3UU6DTo
